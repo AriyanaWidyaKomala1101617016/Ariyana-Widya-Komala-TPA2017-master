@@ -1,2 +1,2 @@
-# Tias Thahirah-TPA17
-1101617086
+# Ariyana Widya Komala-TPA2017
+1101617016
